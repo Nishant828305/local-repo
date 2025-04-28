@@ -1,1 +1,1 @@
-# work hard man
+# work
